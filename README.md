@@ -99,3 +99,8 @@ https://www.mediafire.com/file/x2nn6uuwqxq66qf/Sonata+2010+AboRme7.rar/file
 
 
 https://www.mediafire.com/file/yjcozbutweq4crz/Team_LFR_Toyota_Yaris_2014_2017.rar/file
+
+
+كامري25
+
+https://www.mediafire.com/file/29ycez19hajz00h/Toyota_Camry_2025.rar/file
